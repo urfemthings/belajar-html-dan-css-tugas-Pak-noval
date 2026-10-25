@@ -1,1 +1,1 @@
-hari ini aku membikin web buatan akis sendiri tanpa ai 
+hari ini aku membikin web buatan akis sendiri tanpa ai REAL
